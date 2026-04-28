@@ -1,1 +1,0 @@
-# rizkyekopratama_portofolio
